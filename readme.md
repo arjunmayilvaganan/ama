@@ -4,7 +4,8 @@
 
 
 Anything means *anything*. Personal questions. Money. Work. Life. Code. Whatever.
-However, I hope you understand that I have the liberty to leave any question unanswered if I wish.
+
+However, I hope you understand that I have the liberty to leave any question unanswered as I wish.
 
 -
 
